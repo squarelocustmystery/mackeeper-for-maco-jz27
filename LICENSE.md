@@ -1,4 +1,4 @@
-# 
+# Enhance MacKeeper for macOS with professional MacKeeper for macOS Script | password-sharing + malware-scanning, the #1 script. Includes password-sharing and malware-scanning for a
 
 
 
